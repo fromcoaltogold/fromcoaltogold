@@ -1,14 +1,14 @@
-![ezgif com-gif-maker (6)](https://pbs.twimg.com/profile_banners/2038023292540370944/1774779678/1500x500)
+![FROM COAL TO GOLD](https://pbs.twimg.com/profile_banners/2038023292540370944/1774779678/1500x500)
 
 ## FROM COAL TO GOLD 🖤💛
 
-**Going from undervalued to valuable.**
+**Going from raw potential to refined value.**
 
-FROM COAL TO GOLD is a movement about personal growth, transformation, and helping people improve their lives from where they are to where they want to be. It represents the journey of turning raw potential into real value through mindset, learning, discipline, and consistency.
+FROM COAL TO GOLD is a movement about personal growth, transformation, and helping people improve their lives from where they are to where they want to be. It represents the journey of turning raw potential into refined value through mindset, learning, discipline, and consistency.
 
 ## 🌍 About
 
-This project documents the journey of **Kingsley Nwoye (KINGSGOLD)** and the idea that anyone can grow beyond their current situation by developing themselves, building useful skills, and creating value for others.
+This project documents the journey of **Kingsley Nwoye (KINGSGOLD)** and the belief that nobody starts perfect, but anyone can become valuable through growth, self development, and creating value for others.
 
 ## 🎯 Mission
 
@@ -37,8 +37,8 @@ To help people:
 
 ## 💬 Philosophy
 
-> Coal represents where you start.
-> Gold represents who you become.
+> Coal represents raw potential.  
+> Gold represents refined value.
 
 ---
 
