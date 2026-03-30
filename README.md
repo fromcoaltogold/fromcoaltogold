@@ -4,7 +4,7 @@
 
 **Going from raw potential to refined value.**
 
-FROM COAL TO GOLD is a movement about personal growth, transformation, and helping people improve their lives from where they are to where they want to be. It represents the journey of turning raw potential into refined value through mindset, learning, discipline, and consistency.
+FROM COAL TO GOLD is a community focused on personal growth, transformation, and helping people improve their lives from where they are to where they want to be. It represents the journey of turning raw potential into refined value through mindset, learning, discipline, and consistency.
 
 ## 🌍 About
 
