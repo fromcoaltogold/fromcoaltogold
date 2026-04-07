@@ -4,11 +4,10 @@
 
 **Where People Come to Get Inspired 🖤💛**
 
-FROM COAL TO GOLD is a community for growth and transformation, helping people move from where they are to where they want to be. It’s about turning potential into real results through mindset, discipline, and consistency.
 
 ## 🌍 About
 
-This project documents the journey of **Kingsley Nwoye (KINGSGOLD)** and the belief that nobody starts perfect, but anyone can become valuable through growth, self development, and creating value for others.
+FROM COAL TO GOLD is a community for growth and transformation, helping people move from where they are to where they want to be. It’s about turning potential into real results through mindset, discipline, and consistency.
 
 ## 🎯 Mission
 
