@@ -1,13 +1,13 @@
 ![FROM COAL TO GOLD](https://pbs.twimg.com/profile_banners/2038023292540370944/1774779678/1500x500)
 
-## FROM COAL TO GOLD
+## From Coal To Gold
 
-**Where People Come to Get Inspired 🖤💛**
+**Pressure creates value.**
 
 
 ## 🌍 About
 
-FROM COAL TO GOLD is a community for growth and transformation, helping people move from where they are to where they want to be. It’s about turning potential into real results through mindset, discipline, and consistency.
+From Coal To Gold is a community for growth and transformation, helping people move from where they are to where they want to be. It’s about turning potential into real results through mindset, discipline, and consistency.
 
 ## 🎯 Mission
 
