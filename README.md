@@ -2,7 +2,7 @@
 
 ## From Coal To Gold
 
-**Pressure creates value.**
+**Real transformation through pressure.**
 
 
 ## 🌍 About
