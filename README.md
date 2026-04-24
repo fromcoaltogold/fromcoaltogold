@@ -2,12 +2,12 @@
 
 ## From Coal To Gold
 
-**Real Transformation Through Pressure 🖤💛**
+**Real stories. Real lessons. Real growth.**
 
 
 ## 🌍 About
 
-From Coal To Gold is a community for growth and transformation, helping people move from where they are to where they want to be. It’s about turning potential into real results through mindset, discipline, and consistency.
+From Coal To Gold is a media company that shares real stories and powerful lessons on mindset, discipline, and financial growth through engaging and entertaining content.
 
 ## 🎯 Mission
 
