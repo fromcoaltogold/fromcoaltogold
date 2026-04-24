@@ -2,7 +2,7 @@
 
 ## From Coal To Gold
 
-**Real transformation through pressure.**
+**Real Transformation Through Pressure 🖤💛**
 
 
 ## 🌍 About
